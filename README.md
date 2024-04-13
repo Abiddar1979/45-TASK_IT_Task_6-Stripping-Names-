@@ -1,0 +1,1 @@
+# 45-TASK_IT_Task_6-Stripping-Names-
